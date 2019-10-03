@@ -4,4 +4,4 @@
 
 ## 如何使用
 
-[百度分享不支持HTTPS的处理](https://www.ddhigh.com/2019/07/12/baidu-share-support-https.html)
+[百度分享不支持HTTPS的处理-久思微](https://www.cdjsw.cn/newsinfo_563.html)
